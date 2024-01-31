@@ -11,4 +11,4 @@ Hello, my name is **Bolanle Olonimoyo**
 
 -  With adequate knowledge of Data Analytics, i believe it will help in my academic research and in bridging the gap that exists in making informed decisions from the myriad of data that exist in the world
 
--  You can reach me via (linkedin) [https://www.linkedin.com/in/bolanle-olonimoyo-6426382b0/] where we can collaborate on projects. 
+-  You can reach me via [Linkedin](https://www.linkedin.com/in/bolanle-olonimoyo-6426382b0/) where we can collaborate on projects. 
